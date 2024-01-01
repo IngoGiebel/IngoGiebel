@@ -1,0 +1,1 @@
+Hi, I’m @IngoGiebel. I'm a Bachelor student of Quantitative Biology at the Heinrich-Heine Universität Düsseldorf, Germany, and I already have a degree in computer science (Dipl.-Inform. from the RWTH Aachen).
